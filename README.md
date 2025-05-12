@@ -1,4 +1,5 @@
-<p><a href="https://sekabetl302.com/" style="font-size: 28px; font-weight: 900;">SEKABET GİRİŞ İÇİN TIKLAYINIZ</a></p>
+#  <a href="https://sekabetl302.com/">www.sekabet.com</a>
+#  <a href="https://sekabetl302.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 
 <a href="https://sekabetl302.com/"><img src="https://i.ibb.co/6RmbBPzF/site-giris-buton.gif"></a>
 <a href="https://sekabetl302.com/"><img src="https://i.ibb.co/6RmbBPzF/site-giris-buton.gif"></a>
